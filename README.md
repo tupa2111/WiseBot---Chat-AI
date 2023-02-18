@@ -1,0 +1,2 @@
+# WiseBot---Chat-AI
+TERMS AND CONDITIONS
